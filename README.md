@@ -9,3 +9,4 @@
 ![Screenshot from 2024-12-22 09-45-16](https://github.com/user-attachments/assets/8082d72c-6fba-424e-b4fe-98f29657b4ab)
 ![Screenshot from 2024-12-23 19-53-26](https://github.com/user-attachments/assets/ebc77aec-ac2c-4a86-9838-903b45d2c54e)
 ![Screenshot from 2024-12-23 20-01-45](https://github.com/user-attachments/assets/291bb05e-c12d-434e-a993-23f4a3f056db)
+![Screenshot from 2024-12-25 17-17-44](https://github.com/user-attachments/assets/327438b1-23e1-4c2c-8e1a-dc85410dc374)
